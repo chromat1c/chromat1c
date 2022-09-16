@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @chromat1c
+- 👀 I’m interested in improving my knowledge and skills
+- 🌱 I’m currently learning too many different things at once.
